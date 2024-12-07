@@ -6,7 +6,7 @@
 
 ⚡️ I’m working on helping build a Real Estate brokerage fully powered by AI
 
-📫 How to reach me: @arsamatesfaye@gmail.com
+📫 How to reach me: arsamatesfaye@gmail.com
 
 🎾 Fun fact: Playing tennis is one of my favories hobbies 
 
