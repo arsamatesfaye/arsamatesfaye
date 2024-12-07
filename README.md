@@ -1,12 +1,12 @@
 👋 Hi, I’m @arsamatesfaye
 
-👀 I’m interested in Music, Real Estate, & Programming
+💞️ I’m interested in Music, Real Estate, & Programming
 
 🌱 My major is in Information Systems
 
-💞️ I’m working on helping build a Real Estate brokerage fully powered by AI
+⚡️ I’m working on helping build a Real Estate brokerage fully powered by AI
 
-📫 Reach me @arsamatesfaye@gmail.com
+📫 How to reach me: @arsamatesfaye@gmail.com
 
 🎾 Fun fact: Playing tennis is one of my favories hobbies 
 
